@@ -106,7 +106,7 @@ Beyond keywords, **GitHub's ranking algorithms** also highly value community eng
 
 We are committed to providing continuous support for your **ICSE Bengali studies**. If you have any questions about the content, need clarification on a specific poem or story, or simply want to connect with fellow students and share study tips, don't hesitate to reach out! Join our vibrant community on Discord – we're here to help you succeed!
 
-**Click here to join:** **[https://discord.gg/UdUUYMQr](https://discord.gg/UdUUYMQr)**
+**Click here to join:** **[https://discord.gg/lie_wire]( https://discord.gg/xf6ch55UYm)**
 
 Let's make **ICSE Bengali exam preparation** easier and more collaborative for everyone! Your feedback and engagement are invaluable. 🙏
 
