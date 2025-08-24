@@ -70,7 +70,13 @@ underline only
 
 
 
+Total entries (rows): 90
 
+Total 'সাধু' (Sadhu) words: 91
+
+Total 'চলিত' (Cholito) words: 91
+
+Total words: 182
 
 
 
